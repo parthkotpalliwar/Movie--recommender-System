@@ -68,8 +68,8 @@ Try entering:
 
 ## 📬 Contact
 
-Project by [Your Name Here]  
-Feel free to connect on [LinkedIn](https://www.linkedin.com/in/your-profile)
+Project by Parth Kotpalliwar  
+Feel free to connect on [LinkedIn](https://www.linkedin.com/in/parth-kotpalliwar-9b4835337)
 
 ---
 
